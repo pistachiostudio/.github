@@ -10,13 +10,13 @@
 
 >“If The Ossan Are United!”
 >
->For once in my life I’ve got somethin’ to say.
->I wanna say it now for now is today.
->Life has been given to grab and enjoy.
->So let’s all grab and let’s all enjoy.
+>For once in my life I’ve got somethin’ to say.  
+>I wanna say it now for now is today.  
+>Life has been given to grab and enjoy.  
+>So let’s all grab and let’s all enjoy.  
 >
->If the ossan are united!
->They will never be divided!  
+>If the ossan are united!  
+>They will never be divided!    
 >[by Sham 69](https://www.youtube.com/watch?v=2GQMIXGRjaw)
 
 ᕦ(+_+;)ᕤ==3 ε==ᕦ(;+_+)ᕤ
