@@ -16,7 +16,8 @@
 >So let’s all grab and let’s all enjoy.  
 >
 >If the ossan are united!  
->They will never be divided!    
->[by Sham 69](https://www.youtube.com/watch?v=2GQMIXGRjaw)
+>They will never be divided!
+
+[by Sham 69](https://www.youtube.com/watch?v=2GQMIXGRjaw)
 
 ᕦ(+_+;)ᕤ==3 ε==ᕦ(;+_+)ᕤ
