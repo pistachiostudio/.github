@@ -6,7 +6,7 @@
 - 📹[YouTube](https://www.youtube.com/c/pistachiostudiokngw)
 - 🎤[Soundcloud](https://soundcloud.com/pistachio-studio)
 - 📢[Spotify Playlist](https://open.spotify.com/user/2wf7ulo34ef46fu3awnq984wj?si=mm3fQfatR1OF2Kgr_uieGw)
-- 🤖[Discord Server](https://discord.gg/pistachiogaming)
+- 🤖[Discord Server](https://discord.gg/cX2yAMuZ)
 
 >“If The Ossan Are United!”
 >
